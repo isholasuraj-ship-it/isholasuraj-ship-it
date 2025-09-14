@@ -55,7 +55,7 @@ Here are some projects that showcase my skills (https://acesse.one/7zH0z):
 
 📫 Let’s Connect
 
-💼 LinkedIn: (https://l1nk.dev/ArQLl) 
+💼 LinkedIn: (www.linkedin.com/in/surajudeen-ishola-2b8715195) 
 
 📧 Email: (isholasuraj@gmail.com)
 
