@@ -43,7 +43,7 @@ Business & market research
 
 📂 Featured Projects
 
-Here are some projects that showcase my skills ( 👇):
+Here are some projects that showcase my skills (https://acesse.one/7zH0z):
 
 📊 Sales Performance Dashboard – Interactive Power BI dashboard analyzing sales trends and KPIs across regions
 
@@ -55,7 +55,7 @@ Here are some projects that showcase my skills ( 👇):
 
 📫 Let’s Connect
 
-💼 LinkedIn: https://l1nk.dev/ArQLl
+💼 LinkedIn: https://l1nk.dev/ArQLl 
 
 📧 Email: isholasuraj@gmail.com
 
