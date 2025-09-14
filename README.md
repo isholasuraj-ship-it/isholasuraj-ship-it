@@ -55,8 +55,8 @@ Here are some projects that showcase my skills (https://acesse.one/7zH0z):
 
 📫 Let’s Connect
 
-💼 LinkedIn: https://l1nk.dev/ArQLl 
+💼 LinkedIn: (https://l1nk.dev/ArQLl) 
 
-📧 Email: isholasuraj@gmail.com
+📧 Email: (isholasuraj@gmail.com)
 
 ⭐ "I believe data becomes powerful when it tells a story that guides action. My mission is to uncover those stories."
